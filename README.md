@@ -1,1 +1,1 @@
-# -_Cognitive_Warehouse_Mesh_-CWM-
+# 🧠 Cognitive Warehouse Mesh (CWM)
